@@ -16,3 +16,7 @@ All work and no play makes Jack a dull boy.
 Don't make jack a dull boy!
 
 Get the axe!
+
+Sharpen the Axe
+
+Hack down the bathroom door.
